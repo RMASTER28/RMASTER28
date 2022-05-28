@@ -2,7 +2,7 @@
 - 👀 I’m interested in Music - Voice Acting - Chess - Physics!
 - 🌱 I’m currently learning How to code and I'm looking forward to expand my domain and skills in coding!
 - 💞️ I’m looking to collaborate on projects that can enhance my experience and coding skills
-- 📫 How to reach me ...Send me a email to mastersciencie@gmail.com
+- 📫 How to reach me ...Send me a DM to @RTempo28 in Twitter!
 
 <!---
 RMASTER28/RMASTER28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
